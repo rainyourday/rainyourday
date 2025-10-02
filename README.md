@@ -14,6 +14,7 @@ Pronouns :: Any/All since I’m non-binary, but they/them are preferred !
 
 Languages used :: Indonesia and English (struggling to learn German, sighh).
 
+.
 
 *STATUSES ,,*
 
