@@ -8,7 +8,7 @@
 
 *CHANCE KINNIE ,,*
 
-Name :: Mostly known as Rainy or Cael, but I also go by other names like Noell, Nao, and Thunder. Either way, anything is fine ! You can call me by my kins too, which are Chance and 007n7. Or even give me nicknames !! Be comf and freely express yourself, just be respectful <3
+Name :: Rainy / Cael, but I also go by other names like Noell, Nao, and Thunder ironically. Either way, anything is fine ! You can call me by my kins too — Chance and 007n7. Or even give me nicknames !! Be comf and freely express yourself, just be respectful <3
 
 Pronouns :: Any/All since I’m non-binary, but they/them are preferred !
 
@@ -22,9 +22,9 @@ Languages used :: Indonesia and English (struggling to learn German, sighh).
 
 ⛔ ; Means I’m busy or either upset, please interact with extremely care when I’m in this state. Often non-verbal, but I appreciate your company if you do come.
 
-Yeah, yeah ,, I’m a gacha kid. Shhhh. Yapp a lot, do art, yadda yadda .. I’m shy at first sight.
+Yeah, yeah ,, I’m a gacha kid. Shhhh. Yapp a lot, do art, yadda yadda .. I’m shy at first sight, awkward too, don’t take my jokes seriously !
 
-Friend me on Discord if you want ; (rainyourday_).
+Friend me on Discord if you want ; (/rainyourday_).
 
 .
 
