@@ -1,6 +1,7 @@
-( Account used for Pony Town ! )
+``( Account used for Pony Town ! )``
 
-***❝ Lady Luck is calling . . .  FOR ME! ❞***
+***❝ Take a hold of me. Please, don’t let me go. ❞***
+![image alt](https://github.com/rainyourday/rainyourday/blob/ceccccbf4099cd05cb2846dd5e368da341db62ea/test_20251123191858.png)
 
                                      ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    THE “DEALER”.
                                                     
@@ -16,9 +17,11 @@ Languages used :: Indonesia and English (struggling to learn German, sighh).
 
 *. STATUSES (READ THIS BEFORE INT) ,,*
 
-🌙 ; I usually use this moonie rather than 🟢, and that means I’m around ! Feel free to interact, chat, or just vibe. BUUUUT I might be semi-AFK too, so your odds of getting a reply are high if you do whisper instead. C+H is always welcome, encouraged even, unless stated otherwise (like DNI, DNIUP, DNIUCF, etc).
+``🟢`` ; AVAILABLE.
 
-⛔ ; Means I’m caught up in stuff or not in the mood to socialize. Please interact with extremely care when I’m in this state :( Often non-verbal, but I appreciate your company if you do come.
+``🌙`` ; I usually use this moonie rather than 🟢, and that means I’m around ! Feel free to interact, chat, or just vibe. BUUUUT I might be semi-AFK too, so your odds of getting a reply are high if you do whisper instead. C+H is always welcome, encouraged even, unless stated otherwise (like DNI, DNIUP, DNIUCF, etc).
+
+``⛔`` ; Means I’m caught up in stuff or not in the mood to socialize. Please interact with extremely care when I’m in this state :( Often non-verbal, but I appreciate your company if you do come.
 
 I’m a gacha kid, yapp a lot, do art, yadda yadda .. The stuff.
 
@@ -34,7 +37,8 @@ Friend me on Discord if you want ; (/rainyourday_).
 - You can approach me even when I’m with friends, but be mindful of their pony’s name ; if there’s no C+H, I’d prefer you don’t.
 - I’m a multishipper. My main ships are Paycheck, Doublefedora, and Frozendebt.
 - Proshippers DNI. No questions asked.
+- I LOVEVE MATCHISNG PLEASE DONT BE AFRAID TO ASK HWMAHEJ
 
                                    ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    THE DEAD END.
 
-***❝ . . . Hhey? WAIT! Don’t bluff on me now. ❞***
+***❝ Fool me. Fool me. Go on and fool me! ❞***
