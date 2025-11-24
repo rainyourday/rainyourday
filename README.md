@@ -1,10 +1,12 @@
 ``( Account used for Pony Town ! )``
 
-***❝ Take a hold of me. Please, don’t let me go. ❞***
+　　
+　　
+　
+　　　　　　　　　　　　　***❝ Take a hold of me. Please, don’t let me go. ❞***
 ![image alt](https://github.com/rainyourday/rainyourday/blob/9673832ab796aaa64eb6db69f0887600065b0994/Tak%20berjudul8_20251124082051.png)
 
-                                     ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    THE “DEALER”.
-                                                    
+                                     ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    THE “DEALER”.　　                                                    
 *. CHANCE KINNIE SPOTTED HERE ,,*
 
 Name :: simply Rainy / Cael, or just call me by my kins, which is Chance and 007n7. Nicknames are appreciated ! Be comf and freely express yourself, just be respectful <3
@@ -15,6 +17,7 @@ Languages used :: Indonesia and English (struggling to learn German, sighh).
 
                                       ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  II  :    THE DEAL.
 
+　　
 *. STATUSES (READ THIS BEFORE INT) ,,*
 
 ``🟢`` ; AVAILABLE.
@@ -28,7 +31,6 @@ I’m a gacha kid, yapp a lot, do art, yadda yadda .. The stuff.
 Friend me on Discord if you want ; (/rainyourday_).
 
                                    ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  III  :    THE DEAD LINE.
-
 *. THINGS TO NOTE ::*
 
 - As stated before, you can int with me freely, just be respectful.
@@ -38,8 +40,14 @@ Friend me on Discord if you want ; (/rainyourday_).
 - I’m a multishipper. My main ships are Paycheck, Doublefedora, and Frozendebt.
 - Proshippers DNI. No questions asked.
 - I LOVEVE MATCHISNG PLEASE DONT BE AFRAID TO ASK HWMAHEJ
+　　
 
-                                   ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    THE DEAD END.
+                                    ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    THE DEAD END.
 
 ![image alt](https://github.com/rainyourday/rainyourday/blob/9673832ab796aaa64eb6db69f0887600065b0994/Tak%20berjudul8_20251124091500.png)
-***❝ If I did not have nothing else to give but love, would that even be enough?  ❞***
+
+　　
+　　
+　
+　　　　　***❝ If I did not have nothing else to give but love, would that even be enough?  ❞***
+     
