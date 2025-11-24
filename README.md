@@ -1,7 +1,7 @@
 ``( Account used for Pony Town ! )``
 
 ***❝ Take a hold of me. Please, don’t let me go. ❞***
-![image alt](https://github.com/rainyourday/rainyourday/blob/ceccccbf4099cd05cb2846dd5e368da341db62ea/test_20251123191858.png)
+![image alt](https://github.com/rainyourday/rainyourday/blob/9673832ab796aaa64eb6db69f0887600065b0994/Tak%20berjudul8_20251124082051.png)
 
                                      ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    THE “DEALER”.
                                                     
@@ -41,4 +41,5 @@ Friend me on Discord if you want ; (/rainyourday_).
 
                                    ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  IV  :    THE DEAD END.
 
-***❝ Fool me. Fool me. Go on and fool me! ❞***
+![image alt](https://github.com/rainyourday/rainyourday/blob/9673832ab796aaa64eb6db69f0887600065b0994/Tak%20berjudul8_20251124091500.png)
+***❝ If I did not have nothing else to give but love, would that even be enough?  ❞***
