@@ -1,9 +1,7 @@
 ``( Account used for Pony Town ! )``
 
 　　
-　　
-　
-　　　　　　　　　　　　　***❝ Take a hold of me. Please, don’t let me go. ❞***
+　　***❝ Take a hold of me. Please, don’t let me go. ❞***
 ![image alt](https://github.com/rainyourday/rainyourday/blob/9673832ab796aaa64eb6db69f0887600065b0994/Tak%20berjudul8_20251124082051.png)
 
                                      ..  𝗖𝗛𝗔𝗣𝗧𝗘𝗥  I  :    THE “DEALER”.　　                                                    
