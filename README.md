@@ -3,13 +3,14 @@
 　　
 　　
 
-　　　  　　  　　　　　　    　**Rainy　.　Lycaelus　.　Noell　　𓏵　　Any　/　All**
+　　　  　　  　　　　　　 
+                   **Rainy　.　Lycaelus　.　Noell　　𓏵　　Any　/　All**
     
 
 　　
 　　
 
-　　　  　　  　　　　　　    　　　　*a 007n7 kinnie hyperfixating on Chance*
+　　　  　　  　　　　　　   　　　*a 007n7 kinnie hyperfixating on Chance*
 
 
 
@@ -20,5 +21,5 @@
 　　
 　　
 
-　　　  　　  　　　 　🟢 ; ``idle``　🌙 ; ``semi-afk``　⛔ ; ``busy　/　emotionally unavailable``
+　　　  　　  　 　🟢 ; ``idle``　🌙 ; ``semi-afk``　⛔ ; ``busy　/　emotionally unavailable``
                  
