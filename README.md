@@ -15,7 +15,7 @@
 
 
   　
-![image_alt](https://github.com/rainyourday/rainyourday/blob/dd560773933399f5c2ab40cd99f7737ebda4c969/Tak%20berjudul8_20251213154705.png)
+![image_alt](https://github.com/rainyourday/rainyourday/blob/40a76b340677c8f567c15e992b1f3f11a394ebd3/Tak%20berjudul8_20251213163139.png)
          
 
 　　
