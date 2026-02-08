@@ -10,13 +10,13 @@
 　　
 　　
 
-　　　  　　  　　　　　　   　　*a 007n7 kinnie hyperfixating on Chance*
+　　　  　　  　　　　　　   　　*a Ragatha kinnie on spot !*
 
 
 　　
 
   　
-![image_alt](https://github.com/rainyourday/rainyourday/blob/40a76b340677c8f567c15e992b1f3f11a394ebd3/Tak%20berjudul8_20251213163139.png)
+![image_alt](https://github.com/rainyourday/rainyourday/blob/7a16dcbd300753659a5ee73caaed5426ee501eac/Tak%20berjudul8_20260208112741.png)
          
 
 　　
