@@ -10,7 +10,7 @@
 　　
 　　
 
-<p align="center">“ 𝘋𝘪𝘥 𝘺𝘰𝘶 𝘨𝘦𝘵 𝘦𝘯𝘰𝘶𝘨𝘩 𝗟𝗢𝗩𝗘, my little dove? 𝙒𝙝𝙮 𝙙𝙤 𝙮𝙤𝙪 𝙘𝙧𝙮? ”</p>
+<p align="center">$\color{#FF0000}{“Iㅤjustㅤ𝘄𝗮𝗻𝘁ㅤeveryoneㅤtoㅤbeㅤ𝗵𝗮𝗽𝗽𝘆,ㅤandㅤIㅤ𝗱𝗼𝗻’𝘁ㅤwantㅤpeopleㅤtoㅤ𝗵𝗮𝘁𝗲ㅤme. ”}$</p>
 
 　　
 ![image_alt](https://github.com/rainyourday/rainyourday/blob/7a16dcbd300753659a5ee73caaed5426ee501eac/Tak%20berjudul8_20260208112741.png)
