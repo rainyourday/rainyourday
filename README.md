@@ -10,7 +10,7 @@
 　　
 　　
 
-ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I-+I+feel+cold+.+.+.;Go+forth,+my+child.)](https://git.io/typing-svg)
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I-+I+feel+cold+.+.+.;Go+forth+without+me,+my+child.)](https://git.io/typing-svg)
 
 
 　　
