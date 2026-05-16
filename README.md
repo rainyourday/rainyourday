@@ -4,16 +4,17 @@
 　　
 
 　　　  　　  　　　　　　 
-<p align="center">𝐑α𝗂𐓣𝗒　.　𝐋𝗒𝖼α𝖾ᥣυ𝗌　.　𝐍ⱺ𝖾ᥣᥣ　　𓏵　　𝗔𝗻𝘆　/　𝗔𝗹𝗹</p>
+<p align="center">𝙍𝙖𝙞𝙣𝙮　.　𝙇𝙮𝙘𝙖𝙚𝙡𝙪𝙨　.　𝙎𝙚𝙫𝙚𝙣　　𓏵　　𝗔𝗻𝘆　/　𝗔𝗹𝗹</p>
     
 
 　　
 　　
 
-<p align="center">$\color{#FF0000}{“Iㅤjustㅤ𝘄𝗮𝗻𝘁ㅤeveryoneㅤtoㅤbeㅤ𝗵𝗮𝗽𝗽𝘆,ㅤandㅤIㅤ𝗱𝗼𝗻’𝘁ㅤwantㅤpeopleㅤtoㅤ𝗵𝗮𝘁𝗲ㅤme. ”}$</p>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I-+I+feel+cold+.+.+.;Go+forth+without+me,+my+child.)](https://git.io/typing-svg)
+
 
 　　
-![image_alt](https://github.com/rainyourday/rainyourday/blob/7a16dcbd300753659a5ee73caaed5426ee501eac/Tak%20berjudul8_20260208112741.png)
+![image_alt](https://github.com/rainyourday/rainyourday/blob/29dc68a632470250fd18e97fdd7f2c4d9f608dd5/banner_20260516182631.png)
          
 
 　　
