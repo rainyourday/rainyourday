@@ -9,7 +9,7 @@
 　　
 　　
 
-ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I-+I+feel+cold+.+.+.;Go+forth+without+me,+my+child.)](https://git.io/typing-svg)
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+...+I+failed+them.;My+people,+forgive+me...;Despite+my+efforts,+I+could+not.;I+couldnt+fend+off+the+inevitable.;I-+I+feel+cold+...)](https://git.io/typing-svg)
 
 
 　　
