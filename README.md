@@ -10,7 +10,7 @@
 
 
 　　
-![image_alt](https://github.com/rainyourday/rainyourday/blob/5a3dc6b9720a6154b97ef7fd1cb416e59cde394c/medkit%20(1).png)
+![image_alt](https://github.com/rainyourday/rainyourday/blob/a32b29deb7b14d2c47f0a9e8e9353a3cae44e720/medkit.png)
          
 
 　　
