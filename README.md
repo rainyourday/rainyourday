@@ -46,7 +46,7 @@
 
 Main Kins:
 
-☂︎ 007n7 ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Any Version
+☂︎ 007n7 ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | All Versions
 
 ☔︎︎ Purple ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Animation vs Minecraft
 
