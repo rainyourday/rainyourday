@@ -48,11 +48,13 @@ Main Kins:
 
 ☂︎ 007n7 ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Any Version
 
-☂︎ Purple ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Animation vs Minecraft
+☔︎︎ Purple ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Animation vs Minecraft
 
 ☔︎︎ Ivan ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | Bad Things
 
 ☔︎︎ Booker ᶜ'ˡⁱⁿᵏ | Drawnout
+
+☂︎ Boombox ᶠⁱᶜᵗⁱᵒⁿᵏⁱⁿ | PHIGHTING!
 
 Yumes:
 
